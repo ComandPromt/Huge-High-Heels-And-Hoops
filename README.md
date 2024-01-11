@@ -6,7 +6,7 @@
 
 ![preview](previews/2.jpg)
 
-[Download](Big hoops/Classic_Huge_Hoop_Earrings_5_6_inches.package)
+[Download](https://github.com/ComandPromt/Huge-High-Heels-And-Hoops/blob/main/Big%20hoops/Classic_Huge_Hoop_Earrings_5_6_inches.package)
 
 # Huge Hoops (Rounded Classic)
 
@@ -14,4 +14,4 @@
 
 ![preview](previews/4.jpg)
 
-[Download](Big hoops/Classic_Round_Huge_Hoop_Earrings_5_6_inches.package)
+[Download](https://github.com/ComandPromt/Huge-High-Heels-And-Hoops/blob/main/Big%20hoops/Classic_Round_Huge_Hoop_Earrings_5_6_inches.package)
