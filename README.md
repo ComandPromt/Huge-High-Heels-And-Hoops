@@ -15,3 +15,11 @@
 ![preview](previews/4.jpg)
 
 [Download](https://github.com/ComandPromt/Huge-High-Heels-And-Hoops/blob/main/Big%20hoops/Classic_Round_Huge_Hoop_Earrings_5_6_inches.package)
+
+# Huge High Heels
+
+![preview](previews/5.jpg)
+
+[Download](https://github.com/ComandPromt/Huge-High-Heels-And-Hoops/blob/main/Classic-High-Heels/classic_high_hells.package.package)
+
+[Download](https://github.com/ComandPromt/Huge-High-Heels-And-Hoops/blob/main/Classic-High-Heels/huge_high_hells.package.package)
